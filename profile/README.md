@@ -2,6 +2,10 @@
 
 We're LunarMile
 
+fun facts - 
+1. New Yorkers bite 10 times more people than sharks do worldwide each year.
+
+
 <!--
 
 **Here are some ideas to get you started:**
